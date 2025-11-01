@@ -1,2 +1,0 @@
-# Boran
-i dont know
